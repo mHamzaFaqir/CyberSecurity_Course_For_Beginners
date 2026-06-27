@@ -186,9 +186,7 @@ Your support motivates me to continue creating free cybersecurity learning resou
 **\Muhammad Hamza Faqir**
 
 * GitHub: https://github.com/mHamzaFaqir
-* LinkedIn: *www.linkedin.com/in/mhamzafaqir0593
-
-*
+* LinkedIn: *www.linkedin.com/in/mhamzafaqir0593 *
 
 ---
 
